@@ -1,5 +1,5 @@
 # Peña-Sevillistas-
-Gusta a los clientes!.⭐  ✩ ✩ ✩ ✩
+Lo peor a los clientes!.⭐  ✩ ✩ ✩ ✩
 __________________________________________
 Buen salon y buena terraza.
 El camarero/a lo peor de San Jose de la rinconada.
